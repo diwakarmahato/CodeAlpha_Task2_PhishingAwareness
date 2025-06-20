@@ -34,5 +34,5 @@ If you'd like to test your knowledge, visit this short quiz:
 
 ## Contact:
 Feel free to connect:  
-📧 [diwakar.mahato@example.com](mailto:diwakar.mahato@example.com)  
-🔗 [LinkedIn Profile](https://www.linkedin.com/in/diwakar-mahato-0b1a2b1a2/)
+📧 [diwakar.mahato@example.com](mailto:diwakarmahato12345@gmail.com)  
+🔗 [LinkedIn Profile](https://www.linkedin.com/in/diwakar-mahato-2439612ba?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
